@@ -2,7 +2,7 @@
 
 👩‍💻 Data Scientist | 📊 Data Analyst | 🧠 Machine Learning Enthusiast
 
-📧 krishnikaarun19@gmail.com | 📱 +91 8870406247 | 💼 Krishnika Arun
+📧 krishnikaarun19@gmail.com | 💼 Krishnika Arun
 
 🔍 **About Me:**
 
